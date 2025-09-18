@@ -53,4 +53,6 @@ The **Nexus darknet market link** is your gateway to one of the most secure and 
 ---
 *Disclaimer: This article is for educational and informational purposes only. We do not endorse or encourage illegal activity.*
 
-Update:  09/14/2025
+
+
+Update:  18 September link is back up
